@@ -3,9 +3,11 @@
 Verily, the Italian Islands doth offer a perfect escapade for gallant comrades seeking adventure. With azure seas and bounteous landscapes, these isles beckon the intrepid souls. In Sicily and Sardinia, ancient ruins whisper tales of bygone eras, whilst in Capri and Ischia, the allure of hedonistic delights doth enthrall. The robust feasts of pasta and vino, served amidst scenic vistas, sate the hearty appetites of brethren. Amidst cobblestone streets and coastal cliffs, the bonds of camaraderie strengthen like tempered steel. 'Tis a realm where history dances with mirth, and the spirit of exploration finds its haven. The Italian Islands, a resplendent tapestry for a fellowship's noble sojourn.
 
 For Native Italianianos
+
 https://github.com/pixlbreaker/ItalianoBrendanoArmagiano/assets/17789967/26a76b1d-074b-4f5d-accc-4a532783dec9
 
 For Non Italianions
+
 https://github.com/pixlbreaker/ItalianoBrendanoArmagiano/assets/17789967/cdb8ba2b-2e46-43d0-9245-3c4883e44d87
 
 
